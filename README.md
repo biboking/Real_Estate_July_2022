@@ -1,0 +1,1 @@
+# Real_Estate_July_2022
